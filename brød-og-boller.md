@@ -1,6 +1,6 @@
 # Boller
 
-# Surdejsboller med fuldkornshvedemel
+## Surdejsboller med fuldkornshvedemel
 
 Til ca. 20 boller.
 
