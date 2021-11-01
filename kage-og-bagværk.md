@@ -1,0 +1,84 @@
+# Bagværk
+
+## Kanelsnegle
+
+Giver ca. 15 snegle. Springform på 28 cm.
+
+Lav gerne dobbelt portion af dejen og gem halvdelen i fryseren, eller lav den til boller. 
+Karina har svært ved at trække en så lille portion.
+
+Til dejen:
+
+* 25 g gær
+* 1.5 dl mælk
+* 2 æg
+* 50 g blødt smør
+* 50 g sukker
+* 0.5 vaniljestang, kornene af
+* 0.5 spsk kanel
+* 0.5 spsk kardemomme
+* 0.25 tsk salt
+* 325 g hvedemel
+
+Til remonce:
+
+* 125 g blødt smør
+* En god sjat mørk sirup
+* En god sjat brun farin
+* Rigeligt kanel
+
+Lun mælken og opløs gæren heri.
+
+Tilsæt æg, sukker, smør, vanilje, kanel, kardemomme og salt og rør det hele sammen. 
+Hvedemelet tilsættes lidt efter lidt, mens dejen æltes smidig og glat. Den skal være 
+lidt klistret. Røres på røremaskine ved styrke 1-2 i starten, og til sidst på 4-5.
+
+Lad dejen hæve indtil den er fordoblet i størrelse.
+
+Imens laves remoncen. Bland smør, sukker/sirup, farin og kanel.
+
+Drys rigeligt mel på bordet og rul dejen ud til en rektangel på ca. 5 mm tykkelse.
+
+Smør remoncen ud i et jævnt lag og rul derefter dejen sammen til en pølse – rul den 
+stramt.
+
+Skær dejen ud i stykker med en tykkelse på ca. 3 cm. Kom sneglene i en springform med
+papir i bunden.
+
+Lad dem efterhæve, tildækket, i ca. 1.5 time.
+
+Pensl dem med mælk/æg og bag dem ca. 20 min ved 175 grader, indtil de er gyldne. Pas 
+på med ikke at give dem for meget, de skal være let bløde når de tages ud, for ikke 
+at blive tørre når de bliver kolde.
+
+# Kage
+
+## Kransekage (petit four)
+
+* 400 g marcipan
+* 70 g sukker
+* 70 g flormelis
+* 83 g æggehvider (ca. æggehvide fra 3 æg)
+
+Skær marcipanen i mindre stykker med en kniv, eller riv den på et rivejern.
+
+Bland æggehvide og sukker til en ensartet masse. Der må gerne være
+uopløste sukkerkorn i massen.
+
+Kom marcipanen i og ælt det sammen til en ensartet masse. Det gør ikke
+den store forskel om der er i hånden eller maskine.
+
+Fyld massen på en sprøjtepose med en takket spids. Den skal have et
+ret stort hul for at du kan presse den tyktflydende kransekagemasse ud
+igennem den.
+
+Lav en krans ved at starte ude i siden og kør i en cirkel rundt. Slut
+af med at køre ind over midten og lav en lille top. En lillebitte
+spiral.
+
+Bages ved 210 grader varmluft i ca. 10 minutter og 1-2 minutter uden
+varmluft. Du skal holde øje med dem for de bliver lynhurtigt brændte i
+spidsen af "rillerne". Når du nærmer dig de 12 minutter er der ikke
+langt fra perfektion til briketter. Så sæt en alarm senest ved 10
+minutter og hold øje med dem der fra. Vend evt. pladen efter 5
+minutter for jævn bagning.
