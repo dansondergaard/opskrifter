@@ -1,3 +1,46 @@
+# Brød
+
+## Rugbrød med rugkerner
+
+Opskrift adapteret fra opskriften "Søris rugbrød" i hæftet "Den økologiske
+bagebog". Den mest populære opskrift her i husholdningen, da det sjældent
+går galt og giver et glimrende rugbrød!
+
+Bages i 3.5 L form. Opskriften passer til én form.
+
+### Dag 1
+
+* 50 g frisk surdej
+* 750 g vand (evt. øl, kaffe)
+* 50 g maltsirup
+* 25 g salt
+* 250 g knækkede rugkerner
+* 0-250 g frø/kerner, efter humør og behov
+* 500 g rugmel
+
+
+Surdej, vand, maltsirup, rugkerner, evt. frø/kerner, rugmel og salt blandes i en skål og røres grundigt sammen. Kan fint gøres i en står skål ved håndkraft.
+
+Dækkes til og stilles til hævning et lunt sted i 12-24 timer.
+
+### Dag 2
+
+* 100 g vand
+* 250 g rugmel (eller evt. fuldkornshvedemel eller hvedemel)
+
+Dejen bør nu være hævet ca. dobbelt op og dufte syrligt. Bland vand og mel i
+dejen og rør det sammen, så der ikke er klumper af mel. Dejen skal være
+tyk og klæbrig.
+
+Smør en form med smør og fordel dejen i formen. Glat den pænt ud og dæk til.
+Dejen skal nu hæve i 2-4 timer, afhængig af temperatur og surdejens hæveevne.
+Når dejen er 1 cm. under kanten på formen, sættes de i en 185 grader varm
+ovn (uden varmluft). Brødet skal bages i ca. 2 timer, evt. med damp den første
+time, hvis man ønsker en blødere skorpe.
+
+Tages ud af formen og sættes på en rist til afkøling. Bliver fint blødt, også
+uden at blive pakket ind i fugtige viskestykker.
+
 # Boller
 
 ## Surdejsboller med fuldkornshvedemel
