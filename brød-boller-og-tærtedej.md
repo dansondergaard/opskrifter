@@ -68,3 +68,39 @@ til damp.
 Skær bollerne ud på et vådt bord og fordel dem på to bageplader. Sæt bollerne
 i ovnen og hæld kogende vand i bunden af ovnen. Bollerne bages én plade af 
 gangen i ca. 12-14 min.
+
+## Briocheboller
+
+Klassiske bløde boller, men langtidshævede og uden røremaskine.
+
+Vuggestueboller: 24 stk., bages 10-12 min. (50 g/stk)
+Fødselsdags/te-boller: 16 stk., bages 10-12 min. (75 g/stk)
+Burgerboller: 12 stk., bages 15 min. (100 g/stk)
+
+* 300 g mælk
+* 10 g gær
+* 50 g sukker
+* 150 g smør, smeltet
+* 100 g æg, pisket sammen
+* 550 g hvedemel (12% protein)
+* 10 g salt
+* 1 æg til pensling, sammenpisket
+* Evt. sesamfrø
+
+Bland mælk, gær, sukker, smør og æg. Tilsæt mel og salt. Rør sammen til melet
+er gennemvædet. Lad stå overdækket i 30 min.
+
+Ælt dejen grundigt, enten i skålen eller på et meldrysset bord. Den er færdig
+æltet, når den er glat og fin. Dæk til og lad stå ved stuetemperatur til den er
+hævet til dobbelt størrelse.
+
+Slå dejen ned og del op i den ønskede størrelse/vægt. Form til boller ved at
+flade dejstykket ud og folde hjørnerne ind mod midten, til du har en fast
+kugle.
+
+Læg bollerne på en bageplade med bagepapir. Lad dem hæve overdækket i køleskab 
+i 8-48 timer.
+
+Pensl med æg, evt. pynt med sesamfrø.
+
+Bag ved 225 grader (se tidsanvisning i toppen af opskriften).
