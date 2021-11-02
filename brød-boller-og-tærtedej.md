@@ -1,5 +1,25 @@
 # Brød
 
+## Brød med fuldkornshvedemel, bagt i form
+
+Adapteret fra en Claus Meyer-opskrift.
+
+* 675 g vand
+* 5 g gær
+* 15 g sukker (eller 50 g honning)
+* 750 g mel
+    * 50%: 375 g fuldkornshvedemel + 375 g hvedemel
+    * 75%: 566 g fuldkornshvedemel + 184 g hvedemel
+    * 100%: 750 g fuldkornshvedemel + 0 g hvedemel
+* 15 g salt
+
+Rør gær og sukker ud i vandet. Tilsæt mel. Rør dejen sammen og drys salt over.
+
+Foldes hver time i 3-4 timer til dejen er samlet. Kom i en 3 L rugbrødsform,
+dæk til og sæt i køleskab i 12-48 timer.
+
+Bages ved 225 grader i 45-50 min.
+
 ## Rugbrød med rugkerner
 
 Opskrift adapteret fra opskriften "Søris rugbrød" i hæftet "Den økologiske
