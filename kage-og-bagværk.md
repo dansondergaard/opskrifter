@@ -82,3 +82,34 @@ spidsen af "rillerne". Når du nærmer dig de 12 minutter er der ikke
 langt fra perfektion til briketter. Så sæt en alarm senest ved 10
 minutter og hold øje med dem der fra. Vend evt. pladen efter 5
 minutter for jævn bagning.
+
+# Lines score-brownie
+
+Fra [Sarahs kager](http://www.sarahskager.dk/fudgy-brownie-med-valnodder/),
+men gjort populær her i husholdningen af min veninde Line.
+
+Giver 16 browniestykker.
+
+* 75 g smør
+* 170 g god chokolade, hakket
+* 150 g sukker
+* 2 æg
+* 1 tsk vaniljesukker
+* 0.50 tsk instant espressopulver
+* 0.25 tsk salt
+* 40 g mel
+* 100 g hakkede valnødder
+
+Forvarm ovnen til 160 grader på varmluft
+
+Beklæd en form (ca. 22×22 cm) med bagepapir
+
+Smelt chokolade og smør over et vandbad, tag straks skålen af varmen når chokoladen og  smørret er smeltet
+
+Pisk sukkeret i blandingen og pisk æggene i et af gangen
+
+Tilsæt vaniljesukker og espressopulver og rør derefter mel og salt i dejen.
+
+Fold de hakkede valnødder i dejen og hæld dejen i formen
+
+Bag kagen ca 30 minutter, afkøl og skær den i firkanter
