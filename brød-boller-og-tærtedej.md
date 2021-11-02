@@ -73,9 +73,13 @@ gangen i ca. 12-14 min.
 
 Klassiske bløde boller, men langtidshævede og uden røremaskine.
 
-Vuggestueboller: 24 stk., bages 10-12 min. (50 g/stk)
-Fødselsdags/te-boller: 16 stk., bages 10-12 min. (75 g/stk)
-Burgerboller: 12 stk., bages 15 min. (100 g/stk)
+Portionering:
+
+- Vuggestueboller: 24 stk., bages 10-12 min. (50 g/stk)
+- Fødselsdags/te-boller: 16 stk., bages 10-12 min. (75 g/stk)
+- Burgerboller: 12 stk., bages 15 min. (100 g/stk)
+
+Ingredienser:
 
 * 300 g mælk
 * 10 g gær
