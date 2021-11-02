@@ -100,16 +100,34 @@ Giver 16 browniestykker.
 * 40 g mel
 * 100 g hakkede valnødder
 
-Forvarm ovnen til 160 grader på varmluft
+Forvarm ovnen til 160 grader på varmluft.
 
-Beklæd en form (ca. 22×22 cm) med bagepapir
+Beklæd en form (ca. 22×22 cm) med bagepapir.
 
-Smelt chokolade og smør over et vandbad, tag straks skålen af varmen når chokoladen og  smørret er smeltet
+Smelt chokolade og smør over et vandbad, tag straks skålen af varmen når chokoladen og smørret er smeltet.
 
-Pisk sukkeret i blandingen og pisk æggene i et af gangen
+Pisk sukkeret i blandingen og pisk æggene i et af gangen.
 
 Tilsæt vaniljesukker og espressopulver og rør derefter mel og salt i dejen.
 
-Fold de hakkede valnødder i dejen og hæld dejen i formen
+Fold de hakkede valnødder i dejen og hæld dejen i formen.
 
-Bag kagen ca 30 minutter, afkøl og skær den i firkanter
+Bag kagen ca 30 minutter, afkøl og skær den i firkanter.
+
+## Sørens ølkage
+
+Opskrift på ølkage fra min ven Søren. Bagt et utal af gange på kollegiet.
+
+* 500 g brun farin
+* 1 stk hvidtøl eller en brown ale
+* 500 g hvedemel
+* 2 tsk kanel, stødt
+* 2 tsk nelliker, stødt
+* 2 tsk ingefær, stødt
+* 1 tsk natron
+
+Bland alt og kom i en smurt rugbrødsform på 3.5 L.
+
+Bages ved 180 grader i 90 min. (uden varmluft).
+
+Serveres med smør, evt. pisket eller rørt med lidt revet appelsinskal.
