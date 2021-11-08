@@ -83,7 +83,26 @@ langt fra perfektion til briketter. Så sæt en alarm senest ved 10
 minutter og hold øje med dem der fra. Vend evt. pladen efter 5
 minutter for jævn bagning.
 
-# Lines score-brownie
+## Fars brunkager
+
+* 250 smør
+* 125 sirup
+* 190 brun farin
+* 7	potaske
+* 19 brunkagekrydderi (stødte nelliker, allehånde, ingefær og kanel)
+* 95 mandler
+* 36 revet appelsinskal
+* 500 mel
+
+Smelt smør, sirup og brun farin til farinen er opløst. Må ikke koge.
+
+Herefter tilsættes potaske (udrørt i en smule vand), brunkagekrydderi, mandler, revet appelsinskal og mel.
+
+Køres sammen og fyldes i en rugbrødsform. Fryses inden udskæring.
+
+Bages ved 200 grader i ca. 6 min.
+
+## Lines score-brownie
 
 Fra [Sarahs kager](http://www.sarahskager.dk/fudgy-brownie-med-valnodder/),
 men gjort populær her i husholdningen af min veninde Line.
