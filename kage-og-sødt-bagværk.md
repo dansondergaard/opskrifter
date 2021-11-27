@@ -85,14 +85,14 @@ minutter for jævn bagning.
 
 ## Fars brunkager
 
-* 250 smør
-* 125 sirup
-* 190 brun farin
-* 7	potaske
-* 19 brunkagekrydderi (stødte nelliker, allehånde, ingefær og kanel)
-* 95 mandler
-* 36 revet appelsinskal
-* 500 mel
+* 250 g smør
+* 125 g sirup
+* 190 g brun farin
+* 7 g	potaske
+* 19 g brunkagekrydderi (stødte nelliker, allehånde, ingefær og kanel)
+* 95 g mandler
+* 36 g revet appelsinskal
+* 500 g mel
 
 Smelt smør, sirup og brun farin til farinen er opløst. Må ikke koge.
 
