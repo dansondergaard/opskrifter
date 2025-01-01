@@ -150,3 +150,46 @@ Bland alt og kom i en smurt rugbrødsform på 3.5 L.
 Bages ved 180 grader i 90 min. (uden varmluft).
 
 Serveres med smør, evt. pisket eller rørt med lidt revet appelsinskal.
+
+## Panna cotta
+
+Giver to portioner
+
+* 1 gelatineblad
+* 1 vaniljestang
+* 166 ml piskefløde
+* 25 g sukker
+
+Kom gelatinen i koldt vand.
+
+Hæld fløde, sukker, vaniljekorn og vaniljestang i en kasserolle. Varm op på 
+middel varme til det simrer.
+
+Klem vandet ud af gelatinen og kom den i flødeblandingen. Pisk indtil gelatinen 
+er opløst.
+
+Hæld blandingen i et glas, en form eller lignende, til servering. Kom film på og
+sæt på køl i mindst to timer, gerne natten over.
+
+### Bærtopping
+
+* 1 dl Processo, Asti, eller lignende
+* 100 g røde bær
+* 2 spsk sukker
+
+Kom ingredienserne i en kasserolle og kog indtil saucen tykner.
+
+### Karameltopping
+
+* 25 g sukker
+* 8 g smør
+* 0.5 dl piskefløde
+* Havsalt
+
+Kom sukker i en kasserolle og smelt det over middel varme uden at røre i det.
+
+Når sukkeret er helt smeltet, tilsættes smør, som røres i.
+
+Herefter tilsættes fløden og saucen koge i et par minutter.
+
+Tages af varmen og smages til med havsalt (ca. 0.5 tsk).
